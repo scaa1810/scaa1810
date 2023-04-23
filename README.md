@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 it all started with a discord spam bot... 
+🌱 it all started with lego... 
 
 
 ## 🌐 Socials:
