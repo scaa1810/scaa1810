@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 Currently learning everything I can :D
+🌱 it all started with a discord spam bot... 
 
 
 ## 🌐 Socials:
